@@ -20,6 +20,6 @@ I was super curious about quantum computing but found most explanations way too 
 If you find any typos, have better ways to explain something, or just wanna chat out over quantum stuff (or tech in general), I’d love to hear from you!
 No pressure!
 <br>
-You can reach out on [LinkedIn](https://www.linkedin.com/in/gnana-chandrika-basa-924165275/)  
-or just drop me an email at [basagnanachandrika08@gmail.com](mailto:basagnanachandrika08@gmail.com) 💌
 
+🔗 [LinkedIn](https://www.linkedin.com/in/gnana-chandrika-basa-924165275/)  
+📧 [basagnanachandrika08@gmail.com](mailto:basagnanachandrika08@gmail.com) 💌
